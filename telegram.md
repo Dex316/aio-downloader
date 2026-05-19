@@ -7,6 +7,289 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 19:13
+---
+
+## VahidOOnLine — post 240986
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240986_1779205398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ وزارت دفاع امارات متحده عربی روز سه‌شنبه ۲۹ اردیبهشت اعلام کرد سامانه‌های پدافند هوایی این کشور طی ۴۸ ساعت گذشته، ۶ پهپاد متخاصم را که قصد هدف قرار دادن مناطق مسکونی و تاسیسات حیاتی را داشتند، با موفقیت رهگیری و منهدم کرده‌اند. طبق این بیانیه، این حملات هیچ تلفات جانی یا خسارتی به بار نیاورده است.
+
+هم‌زمان، نتایج تحقیقات و رهگیری‌های فنی درباره حمله ۲۷ اردیبهشت، به نیروگاه انرژی هسته‌ای «برکه» نشان می‌دهد که هر سه پهپاد دخیل در آن حمله (که یکی از آن‌ها به یک ژنراتور برق در خارج از محوطه داخلی نیروگاه اصابت کرد) به همراه پهپادهای سرنگون‌شده اخیر، همگی از خاک عراق شلیک شده‌اند. امارات پیش از این نیز بر آمادگی کامل دفاعی خود برای مقابله با این دست حملات متخاصم تأکید کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240985
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240985_1779205398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (سنتکام)، در جلسه‌ای در کنگره اعلام کرد این نهاد در ماه‌های اخیر، در کنار سایر ماموریت‌های منطقه‌ای، به‌طور مشخص با «تهدید فزاینده» جمهوری اسلامی نیز مواجه بوده است.
+
+او افزود بررسی ارتش آمریکا درباره بمباران مدرسه میناب پیچیده است، زیرا این مدرسه در محل یک پایگاه فعال موشک‌های کروز در ایران قرار داشته است.
+
+فرمانده سنتکام همچنین گفت جمهوری اسلامی از زمان برقراری آتش‌بس تاکنون ده‌ها نفر را اعدام کرده و هزاران بار به‌صورت عمدی غیرنظامیان را در خاورمیانه هدف قرار داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11671
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11671_1779205399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوتین وارد چین «پکن» شد
+@withyashar
+</div>
+
+## pm_afshaa — post 91041
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91041_1779205401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: فکر می‌کردم بازار شاید 25 درصد سقوط کنه و من با این موضوع مشکلی نداشتم، اگه قرار باشه از یک فاجعه هسته‌ای احتمالی جلوگیری بشه.
+
+افت 25 درصدی بازار قابل قبوله، اگر در عوض جلوی یک فاجعه هسته‌ای گرفته بشه؛ بیشتر مردم هم با من موافق‌ هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91040
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91040_1779205403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش پوتین وارد پکن - چین شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91039
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91039_1779205404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: رئیس‌جمهور چین به من قول داده که هیچ سلاحی به ایران ارسال نمیکنه. این یک قول زیباست؛ حرفش رو قبول دارم و از این بابت قدردانی میکنم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ادعای قطر: مذاکرات تهران و واشینگتن به زمان بیشتری نیاز دارد
+
+ماجد انصاری، سخنگوی وزارت امور خارجۀ قطر گفت مذاکره میان آمریکا و جمهوری اسلامی برای حل اختلاف‌ها به زمان بیشتری نیاز دارد.
+او اعلام کرد قطر از تلاش‌های دیپلماتیک پاکستان برای رسیدن به راه‌حل پشتیبانی می‌کند.
+دونالد ترامپ گفته است به درخواست قطر، عربستان سعودی و امارات، حملۀ برنامه‌ریزی‌شده به جمهوری اسلامی را به تعویق انداخته است.
+
+#قطر #مذاکرات
+@DEJradio
+</div>
+
+## IranIntlTV — post 337952
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337952_1779205404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت رییس‌جمهور چین به او قول داده که هیچ سلاحی به تهران ارسال نکند.
+
+ترامپ گفت: «برآورد ما این است که ۸۲ درصد از موشک‌هایشان از بین رفته است. توانایی آن‌ها برای تولید دوباره هم الان بسیار کم شده است.»
+
+او افزود: «در مورد پهپادها هم همین‌طور است؛ بخش عمده‌ای از توانشان از بین رفته، هرچند هنوز مقدار کمی ظرفیت دارند، اما خیلی ناچیز است.»
+https://iranintl.com/202605194006
+</div>
+
+## DW_Farsi — post 124886
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124886_1779205405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قطر: مذاکرات توافق‌محور ایران و آمریکا زمان بیش‌تری می‌طلبد
+
+ماجد الانصاری، سخنگوی وزارت خارجه قطر اعلام کرد که مذاکرات ایران و آمریکا که با میانجی‌گری پاکستان انجام می‌شود برای رسیدن به توافق به زمان بیش‌تری نیاز دارد.
+
+این اظهارات یک روز پس از آن اعلام شد که دونالد ترامپ، رئیس‌جمهور آمریکا اعلام کرد، به درخواست چند کشور عربی، حمله‌ای که قرار بود سه‌شنبه ۲۹ اردیبهشت به ایران انجام گیرد را به تعویق انداخته است.
+
+به گزارش خبرگزاری فرانسه، ماجدالانصاری که روز سه‌شنبه در یک کنفرانس مطبوعاتی سخن می‌گفت افزود:«ما از تلاش‌های دیپلماتیک پاکستان که جدیت خود را در نزدیک کردن دو طرف به یکدیگر و یافتن راه حل نشان داده، حمایت می‌کنیم و معتقدیم که این روند به زمان بیشتری نیاز دارد.»
+
+این در حالیست که پایگاه خبری اکسیوس اعلام کرده که ترامپ روز سه‌شنبه با تیم ارشد امنیت ملی کشور خود به منظور بررسی گزینه‌های نظامی علیه جمهوری اسلامی در اتاق وضعیت تشکیل جلسه خواهد داد.
+
+روزنامه آمریکایی نیویورک تایمز نیز گزارش داده که ایران از آتش‌بس به منزله فرصتی برای احیای توان موشکی خود استفاده کرده است.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 281508
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281508_1779205406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ولادیمیر پوتین، رئیس‌جمهور روسیه، وارد چین شد.
+
+کرملین پیش از سفر ولادیمیر پوتین به پکن در روز سه‌شنبه، یک پیام ویدیویی از رئیس‌جمهور روسیه خطاب به مردم چین منتشر کرد.
+
+در سخنانی سرشار از تمجید از رهبر چین، آقای پوتین از شی جین‌پینگ «دوست خوب و قدیمی» خود قدردانی کرد و گفت روابط دو کشور به «سطحی واقعا بی‌سابقه» رسیده است.
+
+آقای پوتین تاکید کرد که اتحاد راهبردی نزدیک روسیه و چین نقشی مهم و ثبات‌بخش در صحنه جهانی ایفا می‌کند.
+
+سفر آقای پوتین به پکن تنها چند روز بعد از آن انجام می‌شود که آقای شی میزبان دونالد ترامپ بود.
+
+📷Reuters
+</div>
+
+## Dirty_Kids — post 389758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم یه قهوه می‌خواد بخوره باید حساب کنه ببینه این لذت لحظه‌ای میارزه آخر ماه کون بده یا نه!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389757
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389757_1779205406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بسیجی‌ها زیادی از به درک واصل شدن خامنه‌ای خوشحالند، نه؟
+
+میگم اون لاشه رو اول چال کنید، بعد تو خیابونا قر بدید!🤮البته تجهیزات جنگیتون بیشتر از عروسی هم بدرد نمیخوره 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389756
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389756_1779205408.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این چیزایی که من دارم تو این ویدیو میبینم اگه تو ایران باشگاه‌ها مختلط شه بیش از 60 درصد از جوونای مملکتمون به‌جای کشیدن مواد و سیگار و جق، وقتشونو با باشگاه میگذرونن :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389755
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389755_1779205409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G29
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389754
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389754_1779205410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر:
+ایران چند روز فرصت داره تا بیاد پای میز مذاکره؟
+
+ترامپ:
+2 یا 3 روز؛ شاید جمعه، شنبه، یکشنبه. شاید اوایل هفته آینده. نمی‌دونم احتمالا یه بازه زمانی محدود...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389753
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389753_1779205411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :
+ایرانی‌ها دارن التماس می‌کنن که توافق انجام بشه؛
+ممکنه مجبور بشیم یه ضربه سنگین دیگه هم بهشون بزنیم، هنوز مطمئن نیستم، ولی خیلی زود متوجه می‌شید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121139
+
+<div align="center">
+  <a href="telegram/content/alonews_121139_1779205413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: ایران می‌تواند اینترنت امارات و قطر را قطع کند/ایران می‌تواند شرکت‌هایی مانند اینستاگرام را با اهرم فشار اینترنت تنگه هرمز پاسخگو کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121138
+
+<div align="center">
+  <a href="telegram/content/alonews_121138_1779205413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۱۱۰.۴۲ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 19:04
 ---
 
