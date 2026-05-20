@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 15:23
+---
+
+## VahidOOnLine — post 241128
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241128_1779278006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌های داخلی ایران و کانال‌های ارتباطی منسوب به مجتبی خامنه‌ای، رهبر جمهوری اسلامی روز چهارشنبه ۳۰ اردیبهشت ماه پیامی منتسب به او را به مناسبت دومین سالگرد کشته شدن ابراهیم رئیسی، رئیس جمهوری پیشین جمهوری اسلامی ایران را منتشر کردند.
+
+در این پیام، مجتبی خامنه‌ای با تقدیر از عملکرد ابراهیم رئیسی، دوره ناتمام ریاست او بر دولت جمهوری اسلامی را «مقیاسی از تلاش و دلسوزی برای ملت و کشور در عین حفظ استقلال» توصیف کرده است.
+از زمان انتصاب مجتبی خامنه‌ای به رهبری در بحبوحه جنگ، هیچ صدا و تصویری از او منتشر نشده است. دو روز پیش، حسین کرمان‌پور، مدیر مرکز روابط عمومی و اطلاع‌رسانی وزارت بهداشت گفته بود که نه صورت مجتبی خامنه‌ای آسیب دیده و نه پای او قطع شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه الحدث: جمهوری اسلامی و پاکستان در خصوص مذاکرات دچار اختلاف‌نظر شده‌اند
+الحدث گزارش داد در دو هفته گذشته، همکاری میان حکومت ایران و پاکستان با چالش‌هایی روبه‌رو شده و فضای بی‌اعتمادی بر سطح هماهنگی‌های دو طرف سایه انداخته است.
+این رسانه افزود میان تهران و اسلام‌آباد درباره کانال‌های مذاکره و محل برگزاری گفت‌وگوها اختلاف‌نظر وجود دارد.
+بر اساس این گزارش، پاکستان از ایجاد کانال‌های ارتباطی جدید میان تهران و واشینگتن ابراز نارضایتی کرده است.
+@withyashar
+</div>
+
+## WithYashar — post 11747
+
+
+
+
+## mwarmonitor — post 9342
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9342_1779278007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران تهدید کرد در صورت عملی شدن تهدید «ضربهٔ بزرگ» ترامپ، به کشورهایی خارج از خاورمیانه حمله خواهد کرد. نیویورک پست
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Read more:
+</div>
+
+## FoxNewsTwitter — post 341978
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341978_1779278007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Dumb motherf****** didn’t deserve to live.”
+
+Far-left Democrat Senate candidate Graham Platner mocking a U.S. soldier who was shot four times in Afghanistan in a resurfaced Reddit comment.
+
+The post made fun of Purple Heart recipient Pfc. Ted Daniels after he took incoming fire during a 2012 clash with the Taliban.
+
+Platner’s now deleted comment went on to say:
+
+"At least his stupidity and fat ass wheezing are available for all future infantrymen to witness and hold in contempt. Poor marksmanship on the Taliban's part is the only reason this mouthbreather made it home, he managed to make every possible s*** decision possible when it comes to small unit combat."
+</div>
+
+## Shin_Persian — post 6105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.32 released
+
+• Full Tunnel batch protocol now supports zstd compression
+• Compression negotiation is backward compatible
+• To use this in Full mode, update the app, redeploy CodeFull.gs as a new Apps Script version, and redeploy tunnel-node / the Docker image on your VPS or Cloud Run.
+• Compressed batch logging is kept safer
+• Thanks to @yyoyoian-pixel for the implementation and empirical testing in PR #1314.
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.32 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1932
+</div>
+
+## DW_Farsi — post 124922
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124922_1779278008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "نفتکش کره جنوبی در حال عبور از تنگه هرمز است"
+ 
+چو هیون، وزیر امور خارجه کره جنوبی، روز چهارشنبه ۳۰ اردیبهشت‌ماه اعلام کرد که یک نفتکش این کشور هم‌اکنون در حال عبور از تنگه هرمز است. این نخستین مورد از عبور یک کشتی با پرچم کره جنوبی از این آبراه از زمان آغاز جنگ ایران به شمار می‌رود.
+ 
+افزون بر این، یک مقام وزارت امور خارجه کره جنوبی نیز به خبرگزاری فرانسه گفت: «این نخستین کشتی با پرچم کره جنوبی است که از زمان آغاز جنگ ایران از تنگه هرمز عبور می‌کند.»
+ 
+همزمان، وب‌سایت رهگیری کشتی‌ها MarineTraffic نشان می‌دهد که نفتکش Universal Winner با پرچم کره جنوبی در بخش شرقی تنگه هرمز، نزدیک ورودی خلیج عمان، قرار دارد و پس از ترک بندر مینا الاحمدی کویت، به سمت شهر اولسان در جنوب شرقی کره جنوبی در حرکت است.
+ 
+عبور این نفتکش، چند هفته پس از آن انجام می‌شود که یک کشتی تحت مدیریت کره جنوبی در نزدیکی تنگه هرمز هدف شیء ناشناس پرنده قرار گرفت. این حادثه‌ نگرانی‌ها در سئول درباره امنیت کشتیرانی کره جنوبی در منطقه را افزایش داد.
+ 
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14526
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14526_1779278009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ احتمالا بخشی از اینترنت زیر ساخت ها در حال اتصال است!
+
+💢بر اساس آماری که چارت های رادار کلادفلیر نمایش می دهند، طی ساعات گذشته پهنای باند اینترنت کشور افزایش چشمگیری داشته و احتمالا این بدین معناست که اینترنت دیتا سنتر های ایرانی در حال اتصال است.
+
+💢هنوز مشخص نیست این اقدام جهت شناسایی باگ های سیستم فیلترینگ هست یا احتمالا تا ساعات آینده شاهد وصل شدن بخشی از فیلترشکن های قدیمی در داخل ایران خواهیم بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14524
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14524_1779278010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢رسانه‌های جمهوری اسلامی عکس‌هایی از مجتبی خامنه‌ای با ابراهیم رئیسی، رئیس‌جمهور سابق ، منتشر کردند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157383
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157383_1779278010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سازمان حقوق بشر ایران از محاکمه دوباره احمدرضا حائری، فعال مدنی محبوس در زندان قزل‌حصار کرج، به‌دلیل فعالیت‌هایش‌ علیه مجازات اعدام خبر داد.
+
+🔸آقای حائری از نخستین اعضای کارزار «سه‌شنبه‌های نه به‌ اعدام» است که روز سه‌شنبه، ۲۹ اردیبهشت‌، بار دیگر محاکمه شده است.
+
+🔸بر اساس این گزارش، این فعال حقوق بشر، به‌دلیل انتشار روایت‌های مختلف درخصوص اعدام و مبارزه با این مجازات و نقض حق دادرسی منصفانه متهمان، در شعبه یک دادسرای عمومی و انقلاب کرج به صورت ویدئو کنفرانس به «تبلیغ علیه نظام» متهم شد.
+
+🔸این محاکمه درحالی انجام شد که احمدرضا حائری اکنون چهارمین سال حبس خود را سپری می‌کند و نهادهای امنیتی و سازمان زندان‌ها در این مدت برای پنجمین بار علیه او پرونده‌ای جدید تشکیل داده‌اند.
+
+🔸او پیش از این به‌دلیل افشاگری درباره نقض حقوق بشر در زندان‌های ایران به اتهام «اجتماع و تبانی به قصد ارتکاب جرم علیه امنیت کشور» به سه سال و هشت ماه حبس و به اتهام «فعالیت‌ تبلیغی علیه نظام» به هشت ماه حبس محکوم شده بود.
+
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 281600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌خانواده یک زوج بریتانیایی که به اتهام جاسوسی در ایران زندانی هستند، می‌گویند که این دو نفر برای آزادی خود اعتصاب غذا کرده‌اند.
+
+لیندسی و کریگ فورمن، اهل ساسکس شرقی، در ژانویه سال گذشته هنگام عبور از ایران در یک سفر با موتورسیکلت به دور دنیا دستگیر شدند.
+
+این زوج در فوریه به اتهام جاسوسی به ۱۰ سال زندان محکوم شدند، اتهامی که آن را رد می‌کنند.
+
+وزارت امور خارجه بریتانیا می‌گوید که برای بازگرداندن آنها به بریتانیا تلاش خواهد کرد و حبس آنها را «وحشتناک و غیرقابل توجیه» خوانده است.
+
+گفته می‌شود که کریگ فورمن ۱۲ روز است در اعتصاب غذا به‌سر می‌برد که پس از قطع دسترسی تلفنی این زوج در اوایل ماه مه آغاز شد.
+
+منابع دیگر به خانواده آنها گفته‌اند که لیندسی فورمن، ۵۳ ساله، پس از اینکه به او گفته شد می‌تواند با خانواده‌اش تماس بگیرد، اعتصاب غذا را متوقف کرده بود، اما دوباره آن را از سر گرفته است.
+
+جو بنت، پسر لیندسی، امتناع آنها از خوردن غذا را یک وضعیت فوری که نیازمند رسیدگی سریع است، توصیف کرد.
+
+متن کامل خبر در لینک زیر:
+
+https://bbc.in/4wGvdvM
+📷Handout
+
+@BBCPersian
+</div>
+
+## alonews — post 121282
+
+<div align="center">
+  <a href="telegram/content/alonews_121282_1779278011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر مجارستان، پتر ماجار:
+اوکراین قربانی است و حق دارد با هر وسیله‌ای که در اختیار دارد از حاکمیت و تمامیت ارضی خود دفاع کند.
+
+
+🔴هدف همه، دستیابی به آتش‌بس پایدار و صلحی پایدار است که توسط جامعه بین‌المللی تضمین شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 15:13
 ---
 
