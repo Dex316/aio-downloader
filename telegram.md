@@ -7,6 +7,109 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 21:23
+---
+
+## VahidOOnLine — post 241199
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241199_1779299634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ خبرگزاری تسنیم، وابسته به سپاه پاسداران، روز چهارشنبه ۳۰ اردیبهشت به نقل از اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، اطلاعاتی درباره روند مذاکرات میان تهران و واشنگتن را منتشر کرد.
+
+بقایی اعلام کرد که سفر محسن نقوی، وزیر کشور پاکستان به ایران، با هدف «تسهیل تبادل پیام‌ها و ارائه توضیحات تکمیلی برای شفاف‌سازی متن‌های ارسالی میان طرفین» انجام شده است.
+
+رسانه‌های ایران پیش از این گزارش داده بودند که نقوی در چارچوب تلاش‌ها برای دستیابی به توافق میان واشنگتن و تهران، دومین سفر خود را در یک هفته گذشته به ایران انجام داده است. نقوی در این سفر با مسعود پزشکیان نیز دیدار کرد.
+
+بر اساس گزارش تسنیم، بقایی همچنین تاکید کرد که ایران علی‌رغم داشتن «سوءظن شدید و منطقی» به طرف آمریکایی، «مسیر مذاکرات را با جدیت و حسن نیت دنبال می‌کند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342018
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342018_1779299634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: Crowd erupts with cheers as Acting AG Todd Blanche announces the DOJ is indicting former Cuban president Raul Castro.
+
+Castro and several others are being charged with conspiracy to kill U.S. nationals, destruction of aircraft, and four individual counts of murder.
+</div>
+
+## pm_afshaa — post 91123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد اسرائیلی:حمله به ایران بنظر قطعیه و مسئله فقط زمانه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روبیو به مردم کوبا: دلیل سختی‌ زندگی شما سودجویانی هستند که نفت‌تان را غارت کرده‌اند
+
+▪️وزیر امور خارجه آمریکا روز چهارشنبه ۳۰ اردیبهشت با انتشار یک پیام ویدیویی بر حمایت ایالات متحده از مردم کوبا در دستیابی به آزادی، کرامت، و حق تعیین سرنوشت خود تأکید کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/rubio-marco-state-department-cuba-castro-oil-electricity-/8152063.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناتو در آستانه نشست سوئد؛ بدون برنامه نظامی برای تنگه هرمز و نگرانی از کاهش نقش آمریکا
+</div>
+
+## Persian_Trend_Official — post 14542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود 20 دقیقه دیگه لایو آغاز میشه
+</div>
+
+## RadioFarda — post 157397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که نیروهای نظامی آمریکا روز چهارشنبه در دریای عمان وارد نفتکش تجاری «ام/تی سلستیال سی» با پرچم ایران شدند.
+
+🔸سنتکام ضمن انتشار تصاویری از ورود تفنگداران دریایی آمریکا به این نفتکش در شبکه ایکس گفت این شناور مظنون بود که قصد دارد به سمت یکی از بنادر ایران برود و محاصره دریایی ایالات متحده را نقض کند.
+
+🔸در ادامه بیانیه آمده که نیروهای آمریکایی «پس از بازرسی کشتی و صدور دستور تغییر مسیر به خدمه آن، این شناور را آزاد کردند».
+
+🔸سنتکام که نظارت و فرماندهی بر ارتش آمریکا در خاورمیانه را برعهده دارد، گفت: «نیروهای آمریکایی همچنان به‌طور کامل محاصره را اجرا می‌کنند و تاکنون مسیر ۹۱ کشتی تجاری را برای اطمینان از رعایت این محدودیت‌ها تغییر داده‌اند.»
+
+🔸محاصره دریایی ایران به دستور دونالد ترامپ، رئیس‌جمهور آمریکا، چند روز بعد از برقراری آتش‌بس آغاز شد و همچنان ادامه دارد.
+
+@RadioFarda
+</div>
+
+## alonews — post 121385
+
+<div align="center">
+  <a href="telegram/content/alonews_121385_1779299636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیدار محسن رضا نقوی وزیر کشور پاکستان با پزشکیان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 21:10
 ---
 
