@@ -7,6 +7,18 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 04:42
+---
+
+## FarsiVOA — post 218269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نخستين نتیجه از سياست بستن تنگه، خفگى اقتصاد جمهورى اسلامى
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 04:32
 ---
 
